@@ -1,0 +1,1 @@
+Get to know me more! This  is a page that provides some links and other information to paint a picture of who I am and highlights my skills.
